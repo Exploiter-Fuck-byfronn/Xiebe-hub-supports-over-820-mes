@@ -1,0 +1,5 @@
+Hey, i made this script hardly
+
+# THERES JUST A LITTLE FAST KEYSYSTEM WHICH WILL TAKE MAXIMUM 1 MINUTE TO SUPPORT THE OWNER
+
+Have fun, by exploiters 
